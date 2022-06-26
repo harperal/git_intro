@@ -1,1 +1,2 @@
 Allison Harper
+harperal@oregonstate.edu
